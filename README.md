@@ -8,7 +8,7 @@
 
 - 🤝 I'm looking to collaborate on **AI and machine learning projects**
 
-- 📫 How to reach me **LinkedIn: https://www.linkedin.com/in/giriraj-parcha-37962522a/**
+- 📫 How to reach me **LinkedIn: www.linkedin.com/in/girirajparcha**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
